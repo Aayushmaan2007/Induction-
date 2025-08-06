@@ -2,5 +2,3 @@
 
 ## DAY 1 
 hello
-my name
-is 
