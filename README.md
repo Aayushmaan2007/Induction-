@@ -1,9 +1,9 @@
 # Induction Program:
 
 ## DAY 1 (31th July, 2025)
-<br>
+
 The day began with Path and Kirtan at the College Gurudwara Sahib
-‎
+‎<br>
 ‎Students were introduced to the college's legacy through a college orientation presentation, followed by a motivational video featuring their proud alumni - Sangam Arora and Arshpreet Singh (Batch 2025) - sharing how dedication and involvement beyond the classroom shaped their successful journeys.
 ‎
 ‎Insightful addresses by:
