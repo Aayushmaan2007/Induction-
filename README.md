@@ -59,3 +59,32 @@ Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels) brought Physics & Maths
 ‎‎<br>
 
 ‎Chief Guest: S. Gurcharan Singh Grewal, Secretary- SGPC encouraged students with his motivating words.
+
+## DAY 4 (4st August, 2025)
+
+First lecture was taken by Prof. Aastik Sharma(English)  and questions were asked like:
+<br>
+‎-What is your name?
+<br>
+‎-From where you completed your  schooling?
+<br>
+‎-Why do you choose this college?
+<br>
+‎-What are your strength and weaknesses?
+<br>
+-Write a letter to your friend that how was   your first day in college?
+‎<br>
+
+‎Second lecture was taken by Prof. Karam bhalla(chemistry)- Similarly we introduce ourself in front of Prof. Karan bhalla
+‎<br>
+
+‎Third lecture was taken by Priya mam in auditorium of UHV began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life.
+‎<br>
+
+‎Gautam Sir, one of our esteemed seniors, shared his journey in Motorsports, inspiring young minds with passion and grit.
+‎<br>
+
+‎The Causmic Club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.
+‎<br>
+
+‎Meanwhile, Peer-to-Peer sessions and interactive classes by senior students and faculty ran in parallel, making learning collaborative and engaging.
