@@ -88,3 +88,14 @@ First lecture was taken by Prof. Aastik Sharma(English)  and questions were aske
 ‎<br>
 
 ‎Meanwhile, Peer-to-Peer sessions and interactive classes by senior students and faculty ran in parallel, making learning collaborative and engaging.
+
+## DAY 5 (5th August, 2025)
+
+First lecture was  taken by our seniors who taught us some basic of C++ programming language.
+‎<br>
+
+‎Second lecture was taken by Prof. simranjeet Kaur (BEEE)- We introduce ourself in front of Prof. simranjeet Kaur and discuss about the syllabus we will study in the first semester.
+‎‎<br>
+
+‎Third lecture was to be taken by Prof. Sukhwinder Singh (maths) but he was absent and the whole lecture was free.
+‎
